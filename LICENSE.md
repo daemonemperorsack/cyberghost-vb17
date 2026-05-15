@@ -1,4 +1,4 @@
-
+Get the ultimate CyberGhost addon with ultra-secure CyberGhost Addon | P2P-support + static-IP. Featuring P2P-support and static-IP, it's the best choice for secure and private
 
 
 
